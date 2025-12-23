@@ -8,3 +8,5 @@ https://file.pizza/download/jalapeno/anchovies/leeks/broccoli
 
 新链接https://file.pizza/download/turkey/beef/meatballs/romano
 密码同上
+
+密码还是一样，链接在这:https://file.pizza/download/pistachios/pinenuts/almonds/feta
